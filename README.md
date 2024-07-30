@@ -1,4 +1,7 @@
 Boas vindas ao meu perfil✨💌💟
+
+
+
 Meu nome é Julia Gomes
 
 Estou estudando na Alura
